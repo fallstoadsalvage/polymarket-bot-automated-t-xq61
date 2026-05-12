@@ -1,4 +1,4 @@
-# 
+# best Polymarket Plugin | API-integration + slippage-control offers the most advanced Polymarket plugin, with API-integration and slippage-control. Ideal for professional traders
 
 
 
